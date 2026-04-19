@@ -35,8 +35,6 @@
 ## 📫 Connect with Me
 
  💼 LinkedIn: (add your link here)
- 📧 Email: (add your email here)
-
- ✨ Quote
+ 📧 Email:abhinavsharmacse03@gmail.com
 
 > "Consistency is more important than motivation."
